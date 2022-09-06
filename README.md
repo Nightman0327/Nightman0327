@@ -24,7 +24,7 @@ You can contact me here.
             </td>
             <td align="center" width="96" height="96">
                 <a href="#css">
-                    <img src="https://github.com/NikitaRaik/NikitaRaik/raw/main/git%20profile%20icons/css.png" width="60" alt="css" style="max-width: 100%;">
+                    <img src="https://github.com/NikitaRaik/NikitaRaik/raw/main/git%20Superstar221%20icons/css.png" width="60" alt="css" style="max-width: 100%;">
                 </a>
             </td>
             <td align="center" width="96" height="96">
