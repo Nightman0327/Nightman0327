@@ -9,8 +9,7 @@ For standing out 👍my Skills on the world and getting ⭐⭐⭐review🥇🥈�
 I 💖love my all creations even if it's small and inconspicuous. So I give my whole 💖heart and soul for thems.
 
 You can contact me here.
-##### skype.com: live:.cid.b0da9909f5fe8df4
-##### gmail address: top.developer0221@gmail.com
+##### gmail address: top.developer327@gmail.com
 
 # My Skills (I can help you in this follow fields)
 
